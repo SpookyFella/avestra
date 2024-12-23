@@ -1,0 +1,19 @@
+---
+{"dg-publish":true,"permalink":"/cosmology/gods-of-man/briganti/"}
+---
+
+Prior to [[History/The Convergence\|the Convergence]], Avestan was a land of thousands of miles of lush forest and dense greens. A primal land dominated by nature and the beauty that it brought forth. This green was the work of a pair of goddesses bound by more than their portfolios. 
+
+Briganti was once the major goddess of nature. Stern and harsh but kind, putting the needs of the green ahead of all else. Briganti performed her duties alongside her partner, [[Cosmology/Gods of Man/Silvannah\|Silvannah]] the Minor Goddess of Groves and Flowering, who was an almost too sweet and warmhearted goddess who cared similarly about the green, but held out a soft spot for the creatures of the world too which would lead to a schism between the two. 
+
+Briganti was of the opinion that all humanity was a plague on nature and they should take any opportunity to snuff them out, while [[Cosmology/Gods of Man/Silvannah\|Silvannah]] implored her companion to consider humanity just as much a part of nature as plants and animals were. This ongoing disagreement between the two would lead to Briganti disregarding the feelings of her partner and acting against humanity through nature. 
+
+It began with angering the animals of the world and disturbing the peace of the plants, causing them to lash out humanity. However, the result of this was mankind fortifying themselves against this and fighting back, burning down forests and mass culling animals. [[Cosmology/Gods of Man/Silvannah\|Silvannah]] implored Briganti to stop, as this was causing more harm to the green than good. Their arguments would shake the realms, and if gods had a couch Briganti would be sleeping on it. 
+
+While the damage Briganti was causing to the green through her action was significant, the damage she was doing to herself was far worse. Her psyche slowly began to weather, growing depravity to "save" the green from mankind leading her to more and more drastic action until one final straw was drawn.
+
+Briganti, as a goddess of nature, would do what a god had never done until then and oppose her own portfolio. She developed an addictive plant, so addictive that it would draw mankind to it with a single taste. Using this plant she managed to get an entire kingdom addicted and drew them into a huge forest. With all of this kingdom lulled into the forest, she conjured a storm that would ravage this forest until not a leaf was left. Lightning strikes lighting it on fire, raging quakes ripping the land apart. This killed the entire kingdom, but killed the forest too. [[Cosmology/Gods of Man/Silvannah\|Silvannah]] had had enough. She might have been a minor god but she knew Briganti was beyond reason. 
+
+One last confrontation pushed Briganti over the edge. Absolutely glazed over by the lust for destruction she had developed, she refused to listen to [[Cosmology/Gods of Man/Silvannah\|Silvannah's]] requests for a new perspective. Tired of her partner's constant "prattling", she struck her. Now while [[Cosmology/Gods of Man/Silvannah\|Silvannah]] was soft as a rose, her thorns were just as sharp. [[Cosmology/Gods of Man/Silvannah\|Silvannah]] bit back at Briganti, chastising her for completely neglecting not only her portfolio but also for neglecting [[Cosmology/Gods of Man/Silvannah\|Silvannah]]. She cast Briganti out of their realm, and claimed the new title of Goddess of Nature. Briganti, scorned by her ex-companion and with her tail between her legs, retreated to a new realm with a new title befitting her true nature. Briganti, Goddess of the Storm.
+
+#god_of_man

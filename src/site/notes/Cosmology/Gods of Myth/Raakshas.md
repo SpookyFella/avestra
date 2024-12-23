@@ -1,0 +1,9 @@
+---
+{"dg-publish":true,"permalink":"/cosmology/gods-of-myth/raakshas/"}
+---
+
+With [[Cosmology/Gods of Man/Hayata\|Hayata's]] position as Goddess of Cycles leaving [[Cosmology/Realms of the Cosmos/Haev/Haev\|Haev]] and [[Cosmology/Realms of the Cosmos/Hel/Hel\|Hel]] without their rulers, new gods needed to take the thrones that Javenna and Kemati left vacant. Following their merger into [[Cosmology/Gods of Man/Hayata\|Hayata]], [[Cosmology/Gods of Man/Cragen\|Cragen]] oversaw the two realms best he could however even he could not shoulder the weight of commanding three realms. The opportunity to lighten the load came when two mortals came before him. One, [[Cosmology/Gods of Myth/Neriah\|Neriah]], a paragon of good. The other, much to [[Cosmology/Gods of Man/Cragen\|Cragen's]] convenience, was the complete opposite. A serial murderer from [[Geography/Surulia/Surulia\|Surulia]] named Raakshas, lived his life without as much as an crumb of good will in his entire being. He was killed after attempting to lure a wyvowl to kill a group of traveling merchants so he could raid their wares.
+
+Upon his arrival at the [[Cosmology/Realms of the Cosmos/The Great Gates/The Great Gates\|Great Gates]], Raakshas was offered the same opportunity as his kindred spirit [[Cosmology/Gods of Myth/Neriah\|Neriah]], to embody every aspect of his perfectly evil nature as the new Lord of [[Cosmology/Realms of the Cosmos/Hel/Hel\|Hel]]. Naturally, this offer was taken without hesitation as it was essentially a total pardon for his crimes and in some ways a reward. He used his newfound status to create his new kin, the fiends. Empowering his fellow tarnished denizens of [[Cosmology/Realms of the Cosmos/Hel/Hel\|Hel]] with demonic abilities and forms, he truly embraced his new title as the Hand of Hel.
+
+#god_of_myth

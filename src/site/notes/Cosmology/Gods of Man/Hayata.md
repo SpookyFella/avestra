@@ -1,0 +1,18 @@
+---
+{"dg-publish":true,"permalink":"/cosmology/gods-of-man/hayata/"}
+---
+
+Unlike most pantheons, [[Cosmology/Concepts/The Gods of Man\|the Gods of Man]] contained neither a god of life nor a god of death. What they did have was Hayata, the Goddess of Cycles. Her respoinsibilities involve tending to the path one's soul takes from life to death and beyond, finally delivering the soul to [[Cosmology/Gods of Man/Cragen\|Cragen]] for judgement at the [[Cosmology/Realms of the Cosmos/The Great Gates/The Great Gates\|Great Gates]]. 
+
+Hayata, however, was not always herself. She was once two goddesses of Life and Death, Javenna and Kemati. Javenna was responsible for shepherding a life from its birth until its death, where Kemati would collect the soul and take it to [[Cosmology/Gods of Man/Cragen\|Cragen]]. Javenna was kind and loving, taking every soul as if one of her own children. Kemati was cold and indifferent, unable to care less about these wayward souls she'd been shackled to. Despite their differences, Javenna and Kemati could be seen as friends, often finding common ground due to their line of work. However, Kemati was always jealous of Javenna. Save for the some few, nobody embraced death like they did life and for this Kemati always held Javenna in envy.
+
+Kemati would finally be able to take something away from Javenna when she discovered the goddess of life had fallen for a mortal. This mortal, spectacular in every way, was a perfect example of what Javenna always had that Kemati didn't. However the goddess of death was patient, and her opportunity came when Javenna's lover finally met his death. Javenna brought her love to Kemati, entrusting she would ensure he makes his way to [[Cosmology/Realms of the Cosmos/Haev/Haev\|Haev]] so that they could be together in the afterlife. Reassuring Javenna that all would be fine and she would see her partner soon.
+
+Javenna waited, and waited, and waited. She would wait for what seemed like hundereds of years until she decided to go look for her mortal partner. She questioned [[Cosmology/Gods of Man/Cragen\|Cragen]], who stated he had never been brought to him. Confused and enraged Javenna confronted Kemati who happily admitted to her deception, revealing that Javenna's lover was fine and well in a soul crystal Kemati kept on her person at all times as a reminder to herself that she won against Javenna. Kemati revealed that Javenna's lover would only be released if she herself died. Knowing you cannot kill a god, Javenna flew into a rage and fought Kemati anyways, wanting to get her revenge however she can.
+
+During the battle with Kemati, Javenna was reminded that a fighter was never who she was, and every second she spent fighting Kemati was a second the souls of the living were drifting away without her guidance. Faced with an impossible choice, Javenna chose to sacrifice it all and use her godly power to absorb Kemati, eliminating her by bringing her into Javenna's godly body. This gambit was successful, but what came from the ritual was not Javenna. Javenna's lover was released as Kemati no longer existed, but he did not recognize who he was faced with. This is when it set in, Javenna did not absorb Kemati, she merged with her. 
+
+Javenna and Kemati had merged into Hayata the Goddess of Cycles, cursed to live her eternity knowing she could never find her happiness, while staying vigilant to always guide the souls of the living and the dead along the right path to ensure this never happened again. 
+
+
+#god_of_man

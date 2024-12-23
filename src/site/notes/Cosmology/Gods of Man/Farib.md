@@ -1,0 +1,11 @@
+---
+{"dg-publish":true,"permalink":"/cosmology/gods-of-man/farib/"}
+---
+
+One half of the Children of Fate, Farib is the Avestran god of trickery and deceit. He was born alongside [[Cosmology/Gods of Man/Fila\|Fila]] the goddess of motherhood. When the twins came into being, their arrival was celebrated all across the pantheons of old Avestan. However, when the other gods laid their eyes on the two they fell in love with [[Cosmology/Gods of Man/Fila\|Fila]] while turning their heads away from Farib. Farib was seen as a curse, as when he was born he did not stop crying for a millennia whilst [[Cosmology/Gods of Man/Fila\|Fila]] was peaceful and cooperative. As they grew up this dichotomy grew more apparent as [[Cosmology/Gods of Man/Fila\|Fila]] was treated as a golden child while Farib was chastised for every attempt of his to get an iota of attention ahead of his sister.
+
+This contempt would build and build until Farib hit a breaking point. Once him and his sister came of age, which itself was an oddity as gods are not known to age, Farib devised a plan to ensure that if he could not find the happiness he deserved then neither did [[Cosmology/Gods of Man/Fila\|Fila]]. When they were born, it was prophesied that [[Cosmology/Gods of Man/Fila\|Fila]] would one day birth an extremely powerful god, one that could ensure peace throughout the realms. When [[Cosmology/Gods of Man/Fila\|Fila]] finally fell pregnant with this godling, Farib enacted his plan and using foul magic secretly sealed [[Cosmology/Gods of Man/Fila\|Fila]]'s pregnancy in time ensuring that she can never fulfil her destiny and thus dubbing him the self-given title the Thief of Fate.
+
+With [[Cosmology/Gods of Man/Fila\|Fila]]'s fate sealed, Farib began gaining a following from the mortals. With many mortals inclined to ill-intended actions finding a kindred spirit in Farib since he became the official God of Deceit and Trickery. This allowed him to gain the love and devotion he had always been looking for, albeit at the cost of his sister's destiny. Now despite Farib being in a position where he does not need to compete with his sister for attention, he intends to keep her fate sealed in time to ensure that he never has to feel compared to her again.
+
+#god_of_man

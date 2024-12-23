@@ -1,0 +1,9 @@
+---
+{"dg-publish":true,"permalink":"/cosmology/gods-of-myth/zana/"}
+---
+
+As the natural mirror of the material plane, the Feywild is a dangerous and mysterious place. However, the creation of the Feywild was actually to contain a massive threat to all. Zana, the Blightchild. Zana was found initially as a manifestation of entropy, floating through the Astral Sea. The being was brought to the attention of [[Cosmology/Gods of Man/Cragen\|Cragen]] and [[Cosmology/Gods of Man/Zarathustra\|Zarathustra]] who both recognized the incredible danger that it held, as entropy was unpredictable and incalculable. With much of the cosmos undeveloped, and with the material plane still ravaged by [[History/The Convergence\|The Convergence]], [[Cosmology/Gods of Man/Zarathustra\|Zarathustra]] decided to create a realm dedicated to the containment of this threat, and so he created a sister realm to the material plane that would come to be known as the Feywild. 
+
+It was within this bland, empty mirror that the Blightchild was born. From the entropy came a child, Zana, who was lost and confused... and most of all she was lonely. As she existed, she discovered that through her unfathomable power she could manipulate the realm around her and began to fill the void. She fought her loneliness with the imagination of a child, filling the Feywild with bright colors, flowers and magical creatures. She created a family; her father Oberon, her mother Titania, and her brothers Lysander and Demetrius. As time went on, her imagination become more than that and began to permeate the veil between what is real and what isn't and her machinations became as real as she was. The Feywild bloomed with whimsical life, however at its core was still a lonely abandoned child who didn't know her place in the world and who was still prone to chaotic and unexpected tantrums...
+
+#god_of_myth
