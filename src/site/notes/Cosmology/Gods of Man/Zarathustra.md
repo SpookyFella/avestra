@@ -30,8 +30,4 @@ Zarathustra’s theft of creation’s power left him burdened with the responsib
 
 Zarathustra is worshipped as both a savior and a cautionary tale. He is a reminder of the perils of hubris and the responsibilities that come with immense power. His name is invoked in times of great need, and his story is a cornerstone of Avestra’s cultural and spiritual identity. Pilgrims, scholars, and adventurers alike are drawn to his tale, whether to seek his guidance, challenge his legacy, or unlock the mysteries of the Convergence.
 
-  
-
 In the end, Zarathustra’s actions were neither purely heroic nor villainous. He acted out of desperation to save his people, yet the ripples of his choices reshaped existence itself. To this day, the world of Avestra bears the scars and blessings of his fateful journey, ensuring that Zarathustra’s story will never fade from memory.
-
-#god_of_man
