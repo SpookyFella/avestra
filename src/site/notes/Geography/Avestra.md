@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/geography/avestra/"}
+{"dg-publish":true,"permalink":"/geography/avestra/","tags":["gardenEntry"]}
 ---
 
 ```leaflet  

@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/cosmology/gods-of-man/zarathustra/","tags":["gardenEntry"]}
+{"dg-publish":true,"permalink":"/cosmology/gods-of-man/zarathustra/"}
 ---
 
 Zarathustra, the chief god of Avestra, stands at the nexus of its mythology, history, and the metaphysical forces that bind the universe together. He is revered not only as the architect of the material world but also as a tragic figure whose actions reshaped reality in ways even he could not have foreseen. His tale is one of sacrifice, ambition, and unintended consequences, leaving a legacy that continues to ripple through the fabric of existence.
